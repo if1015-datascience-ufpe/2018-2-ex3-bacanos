@@ -57,6 +57,8 @@ e resumidos. O aluno (grupo) deverá se esforçar ainda mais para que seu resumo
 - Cinthya Lins, Thiago Casa Nova -- 3
 - Gabriel Barbosa, João Vasconcelos -- 8
 - Claudio Carvalho, Guilherme Lima -- 14
+Slide: https://docs.google.com/presentation/d/1Vw90qCfPrBQVo4T_db-yWDJ-XJm8FMMgeR-HYBM9D3M/edit?usp=sharing
+Doc: https://docs.google.com/document/d/1jwnRfHeRH9OPiYj2XDtfm8NQoWPTemq1JQmexHDKHOc/edit?usp=sharing
 - Breno Rios -- 18
 - Matheus Raz, Lerisson Freitas -- 2
 - Matheus Feliciano -- 7
